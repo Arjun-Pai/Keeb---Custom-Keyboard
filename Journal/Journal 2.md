@@ -1,4 +1,4 @@
-October 19 - 29 Hours
+October 19 - 29 Min
 
 So as per the guide now i have to plan it out using drawing or some thing like that.
 
